@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ggstddup1
+- 👀 I’m interested in study
+- 🌱 I’m currently learning everything i can 
+- 💞️ I’m looking to collaborate on everything u want 
+- 📫 How to reach me, i'll reach you 
